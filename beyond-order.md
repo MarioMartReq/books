@@ -4,6 +4,18 @@
 
 ## Chapters (Rules)
 
+1. Do not carelessly denigrate social institutions or creative achievement. 
+2. Imaigne whou could you be, and then aim singlemindely at that. 
+3. Do not hide unwanted things in the fog. 
+4. Notice that opportunity lurks where responsability has been abdicated. 
+5. Do not do what you hate.
+6. Abandon ideology.
+7. Work as hard as you possibly can on at least one thing and see what happens. 
+8. Try yo make one room in your home as beautiful as possible.
+9. If old memories still upset you, write them down carefully and completly.
+10. Plan and work diligently to mantain the romance in your relationship.
+11. Do not allow yourself to become resentful, deceitful or arrogant.
+12. Be grateful in spite of your suffering.
 ### 1. Do not carelessly denigrate social institutions or creative achievements.
 
 #### Loneliness and confussion.
